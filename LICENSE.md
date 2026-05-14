@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced momentum trading bot Addon | volume-analysis + order-flow-analysis, the #1 momentum trading bot. Includes volume-analysis and
 
 
 
